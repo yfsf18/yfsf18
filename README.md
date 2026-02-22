@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @yfsf18
 - 👀 I’m interested in ...cryptocurrency.
-- 🌱 I’m currently learning ...tradaing
+- 🌱 liquidated almost 69x lol.not an easy money on trading at all. 
 - 💞️ I’m looking to collaborate on ...coding
 - 📫 How to reach me ...
 
